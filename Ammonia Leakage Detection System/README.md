@@ -18,3 +18,6 @@
 
 ### To see the Working Videos, below is the Google Drive Link:
 [Click here to see the Working Videos](https://drive.google.com/drive/folders/1HCPE_boCipwPR58jw4Bi_4e5Gp7FpHyf?usp=sharing )
+
+### For more details, the Documentation and Presentation we have given to the Company are added below:
+[Click here to access them](https://drive.google.com/drive/folders/1xcA1ZNJR0ZXgbir7boy9AY-IT9NxJxqX?usp=sharing)
